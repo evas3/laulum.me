@@ -19,10 +19,15 @@ Pikku kakkosen Ransu
 
 Sinivilkkuinen taksi
 Etupenkillä kaksi v\*\*\*n mulkkua
-takapenkin susikoira
+Takapenkin susikoira
 ei voi ymmärtää
+
+Aalto-yliopisto
+Postilokero, kato vittu Googlesta
+Vitun kalliin logon värit pöllitty Ikealta
+Huippuyliopisto
 
 Ammattikorkeakoulu
 Postilokero, mitä sen on väliä
-joku vitun tradenomitutkinto kuitenkin
+Joku vitun tradenomitutkinto kuitenkin
 Ammattisurkeakoulu
